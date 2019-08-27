@@ -1,3 +1,3 @@
 # AJDarras.github.io
-## My website is under constructions. 
-### - AJ
+## My website is under constructions.
+in the meantime, you can find me at https://www.linkedin.com/in/ajdarras/
